@@ -10,7 +10,7 @@
 
 ### Lasso Guard
 
-### De la Riva Guard
+### De la Riva Guard(de_la_riva.md)
 
 ## Start of Randori Attacks
 
