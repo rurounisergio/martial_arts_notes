@@ -61,11 +61,23 @@ Go into combat base and then go to their side. \
 <summary>Ball and Chain Sweep</summary>
 
 ## Sweep
-
-
+Right hand is grabbing opponents left sleeve \
+As push opponents left thigh back with right foot, sit up at the same time. Left leg switches to be on the ground around opponents leg \
+Left arm grabbing around opponents leg. Keep chest near opponents right leg, very tight. Pass opponents left sleeve to your left hand \
+Switch your right hand grip to opponents cross collar. Keep right foot on opponents thigh throughout. \
+Then pull down with right hand, pull opponents left arm between their legs and push opponent back with your right foot. \
+Table principle -> pushing opponent in direction in which they have no base (towards you and to the right)
+\
 ## Passing Guard after sweeping
-
+After sweeping, switch your right hand to grab opponents left collar. Left hand is on the floor between opponents legs \
+Put your head in opponents right shoulder and pull with your right hand. Left shoulder putting pressure down. \
+Want to avoid your opponent scooping out. Once have a comfortable position, switch left hand to grab opponents back, as close \
+as possible to back of their collar. \ Then start walking clockwise and move your legs over and around into side control. 
+\
 ## Triangle when opponent defends sweep by posting out arm
+If opponent defends the sweep by posting out their right arm, left hand goes to the back of opponents head and at the same time \
+left leg anchors on opponents back. Then right leg closes the triangle. Then release collar grip with right hand and put behind \
+opponents head. Hands behind opponents head stops them posturing up. Then finish the triangle. 
 
 </details>
 

@@ -10,9 +10,9 @@
 
 ### Lasso Guard
 
-### De la Riva Guard(de_la_riva.md)
+### [De la Riva Guard](de_la_riva.md)
 
-## Start of Randori Attacks
+## Start of Randori Attacksgit
 
 <details>
 <summary>Arm drag to back take</summary>
