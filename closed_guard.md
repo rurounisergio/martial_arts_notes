@@ -88,9 +88,52 @@ Opponents wrist should be trapped against side of your head.
 
 </details>
 
-<details>
-<summary></summary>
 
+You have opponent in closed guard:
+Go on your right elbow to raise yourself up. Your left hand wraps around opponents head over their right shoulder and grabs their left armpit. Drag them down.
+Shrimp to the left and keep guard closed. 
+
+Option 1 Cross choke)
+Right hand grabs opponents cross collar palm up very deep. Left hand grabs palm down behind opponents head. Try to keep wrists together. Change angle by shrimping in other direction. Right leg pushes in opponents armpit. Left hand switches around opponents head. Bring your head to your wrists and gradually apply pressure to choke. 
+Opponent normally defends by trying to posture up and push on your hands. Use your legs and arms to keep opponent tight to prevent this.
+
+Option 2 back take)
+When opponents right hand is tucked inside. 
+Your right hand goes under opponents arm and grabs the back of their right elbow. Pull it forward and shrimp to the left a bit to go on your right elbow and create some space. 
+Left hand grabs armpit throughout. 
+Right hand then switches around to push on the outside of opponents right elbow palm down. 
+Push elbow and pull on their armpit at the same time to twist opponent. 
+Your left foot can go on ground to help shrimp away as pull on armpit and push on elbow. You want opponents back on your chest. Then get seatbelt grip, hooks in and complete the back take. 
+
+<details>
+<summary>Closed Guard clinch attacks (Arm bar and triangle)</summary>
+
+Setting up the clinch:
+Get judo sleeve and lapel grip. Pull yourself up and then use legs and weight going back to pull your opponent down. \
+Opponent will normally post out their arms for base. \
+Use your left arm to wrap around their right shoulder as deep as you can. Grab opposite left lapel. \
+Use right foot on opponents hip and left foot to shrimp to your left. \
+\
+1) Armbar entry from closed guard : \
+Bring left foot near opponents right shoulder and press down. \
+Twist your arm in a torking motion putting pressure on opponents elbow and armbar. \
+\
+2) triangle entry from closed guard : \
+Being right knee infront of opponent. Reverse hip escape to create space. \
+Grab opponents left wrist and push it away as bring right leg high over opponents shoulder. \
+When bringing leg over, go the shortest route which is around their elbow. \
+Then close your legs and control opponents head. Bridge to create space under opponents arm. \
+Bring both hands behind opponents elbow. Use momentum of bringing legs close to push opponents arm to the other side. \
+Right hand holds your right knee and left hand holds your right shin. \
+Bring your head to your right without shrimping and finish the triangle choke. \
+\
+3) Straight armbar or Kimura \
+Straight armbar by scooping the back of opponents elbow and putting pressure on the back of the elbow, \
+keeping their hand tight against the side of your face. \
+Kimura -> \
+When doing kimura, dont go straight for the wrist or attack is too obvious. \
+Get arm over opponents shoulder first, then use both your hands and body to move opponents arm into the right position first.\
+ 
 </details>
 
 <details>

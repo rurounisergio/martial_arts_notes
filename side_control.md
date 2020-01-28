@@ -29,3 +29,57 @@ Bring your right hand up to raise opponents arm high. Move your upper body upwar
 Bring your left foot in to swedish newaza position. Then bring right knee over \
 opponent into mount. \
 </details>
+
+<details>
+<summary>The Garrote (Gi Choke)</summary>
+https://mmaleech.org/side-control-artillery/9-the-garrote/
+
+You have opponent in side control. Your left hand is under their head \
+and right hand is under their arm. \
+Use your right hand to lift up opponents arm so your left \
+hand can grab under opponents armpit and put a lot of pressure \
+on opponents face with your left shoulder. \
+Lean forward on your toes, putting pressure on opponents face \
+Use your right hand to release your lapel from your trousers \
+on right side of your body \
+Move your lapel over opponents left shoulder and feed to your \
+left hand \
+Pull so lapel connects to opponents neck. \
+Best to grab at end of lapel with left hand. \
+Bring left hand to opponents hip near you \
+Keep your head low as transition into north south position \
+As walk around, extend your left arm and bring your shoulder \
+onto opponents belly button \
+Your left leg goes over opponents head and checks their head \
+with your left knee \
+Your head goes to right side of opponents hip. \
+Your head and left knee prevent opponent from moving \
+Choke comes from extending your left arm with your shoulder \
+on opponents bellybutton
+
+</details>
+
+
+<details>
+<summary>Baseball bat air choke</summary>
+https://mmaleech.org/side-control-artillery/10-baseball-bat-air-choke/
+
+Same as Garrote, \
+You have opponent in side control. Your left hand is under their head \
+and right hand is under their arm. \
+Use your right hand to lift up opponents arm so your left \
+hand can grab under opponents armpit and put a lot of pressure \
+on opponents face with your left shoulder. \
+
+This time, instead of grabbing your own gi, grab opponents gi \
+and pass it under their arm and grab it with your left hand palm down and pull. \
+Put your right knuckle on the floor near their left hip so they cannot hip escape \
+and use your hand to push off the ground and go onto knee on the belly. \
+Slide your left hand down to end of opponents lapel. \
+Use your right hand palm up to grab the lapel you are controlling with your left hand \
+Keep your right elbow down and tight on their chest so opponent cannot go under with their arm and defend their neck \
+Bring your elbows together and slide knee off their belly and onto the side \
+Move your head to opponents right hip and left knee checking their head. \
+Keep low throughout \
+Extend your left arm to finish the choke \
+</details>

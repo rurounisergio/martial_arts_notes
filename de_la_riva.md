@@ -79,7 +79,30 @@ If opponent defends the sweep by posting out their right arm, left hand goes to 
 left leg anchors on opponents back. Then right leg closes the triangle. Then release collar grip with right hand and put behind \
 opponents head. Hands behind opponents head stops them posturing up. Then finish the triangle. 
 
+## Ball and Chain sweep to back take
+When try to sweep opponent, not only do they put out their right hand, they also go down onto their knees
+so they are in a turtle position and it is hard to finish the sweep. \
+Can then pull your right leg out and go onto your knees \
+Put your hooks in and take the back.  \
+Can do this by putting your right knee deep and pulling them onto you, bring left leg around and pull them onto you \
+Keep hold of their sleeve throughout for control \
+TLDR: Get right hook in, and pull opponent onto you, then get left hook. 
+
+## Ball and Chain sweep to Ko Soto Gari
+You attempt the ball and chain sweep. Opponent postures up. \
+Use your hands to pull yourself up. Can then drag him down and attempt the sweep again. \
+If can't drag him back down, put your right leg back into an S position. \
+Put your right hand on their left hip. Use your head like a battering ram and bring him back. \
+
+## 101 Sweep
+De la riva position. Turn your left knee inwards to your right. \
+Push right leg all the way out pushing opponents left thigh back, but dont sit up \
+Pull opponents left sleeve as turn with left knee and sweep them to your right. \
+
+Can switch from ball and chain sweep into 101 sweep when opponent pushes on your shoulders and \
+stops you sitting up \
 </details>
+
 
 <details>
 <summary></summary>
