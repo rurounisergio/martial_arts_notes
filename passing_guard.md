@@ -78,3 +78,40 @@ If opponent resists with their right leg. Push it deep between your legs. Put yo
 right cheek on their belt and switch your base. Change grip to cup their knee and \
 push it away as bring your right leg around and into side control. \
 </details>
+
+<details>
+<summary>Passing de la riva</summary>
+
+Opponent has you in de la riva, with hand on your right ankle. \
+Grab opponents pants near the edge in spider guard grip. \
+Take a step back and to your right With your left leg. \
+At the same time, stretch out your right leg. \
+Then step back to the left with your left leg with good base infront of your opponent. \
+You should have released opponents hook around your right leg. \
+Your left leg should be a bit back to stop opponent reaching it with their hand. \
+Switch your right hand to opponents left collar (same side grip always). \
+Touch your right knee with your right elbow to create a wall and prevent your opponent from turning back. \
+\
+1) Knee slide pass \
+Step to the left with your left leg and slide your right knee into the ground infront of opponents hip. \
+Use your left hand to raise opponents right arm cupping their elbow whilst pushing with your right hand to flatten the opponent down. \
+Slide your right knee to your left away from opponent. \
+Then hip escape to bring your hips next to opponent and then switch into side control. \
+\
+2) X-Pass to knee on the belly \
+Push opponents right knee towards them as take a big kick back with your right leg. \
+Then bring your right shin onto opponents belly. \
+Keep holding your grips. Hand on collar pulling and hand on knee pushing. Can cross your hands in an x-shape. \
+If opponent pushes your knee to get the knee off their belly, release grips. \
+Right hand cups under their arm behind their shoulder. Left hand on the ground behind opponent. \
+Left leg takes a step behind opponent and sit into the armbar. Squeeze knees and finish the armbar. \
+\
+Leg drag pass \
+If opponent manages to get their right leg out from between your legs, \
+keep your left grip on their leg. Release grip with your right hand and leg drag their right leg across your body to your right. \
+Your right hand grabs same side lapel and lock your elbow down so opponent cannot free their leg. \
+Your right knee goes to your right onto the floor. Right elbow keeping tight. \
+Left hand goes on opponents belt on their right hip. \
+Then switch your base by bringing your head to opponents left hip and switch into side control. \
+</details>
+

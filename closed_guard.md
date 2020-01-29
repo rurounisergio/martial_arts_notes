@@ -48,12 +48,19 @@ Execute the triangle. \
 <summary>Armbar from closed guard</summary>
 
 Opponent grabs your lapel with their right hand. Use two hands on their wrist pulling upwards to break their grip. \
-If opponent grabs very tightly, can do a mile tyson left hook on their wrist. E.g. grab their wrist with your left hand and punch to the left. \
-Once opponents grip is broken, right hand cups behind opponents right tricep and drag their arm slightly across your centreline. Don't pull their arm too far across. \
+If opponent grabs very tightly, can do a mike tyson left hook on their wrist. \
+E.g. grab their wrist with your left hand and punch to the left. \
+Once opponents grip is broken, right hand cups behind opponents right tricep and drag their arm slightly across your centreline. \
+Don't pull their arm too far across. \
 Left arm goes on opponents left shoulder to keep them down. \
-Left foot on opponents right hip. Don't hip escape. Just turn to the right, keeping your hips as close to opponent all the way through. \
-Your right foot pushes opponents head away and clamps down. This makes it easy to pass left leg over opponents head. \
+Left foot on opponents right hip. Raise your hips so there is no room between hips and opponents arm \
+Don't hip escape. Just turn to the right, \
+keeping your hips as close to opponent all the way through. \
+Your right foot pushes opponents head away and clamps down. Push starts with knee, then foot \
+and is diagonal and forward \
+This makes it easy to pass left leg over opponents head. \
 Squeeze knees together. Raise hips. Opponents thumb pointing at the ceiling. Finish armbar. \
+Your left foot is heel up with pressure down. Right foot on left knee with no space -> squeezing tight \
 </details>
 
 <details>
@@ -88,22 +95,45 @@ Opponents wrist should be trapped against side of your head.
 
 </details>
 
+</details>
 
-You have opponent in closed guard:
-Go on your right elbow to raise yourself up. Your left hand wraps around opponents head over their right shoulder and grabs their left armpit. Drag them down.
-Shrimp to the left and keep guard closed. 
+<details>
+<summary>Closed Guard clinch attacks (Choke and back take)</summary>
 
-Option 1 Cross choke)
-Right hand grabs opponents cross collar palm up very deep. Left hand grabs palm down behind opponents head. Try to keep wrists together. Change angle by shrimping in other direction. Right leg pushes in opponents armpit. Left hand switches around opponents head. Bring your head to your wrists and gradually apply pressure to choke. 
-Opponent normally defends by trying to posture up and push on your hands. Use your legs and arms to keep opponent tight to prevent this.
+You have opponent in closed guard \
+Go on your right elbow to raise yourself up. \
+Your left hand wraps around opponents head over their right shoulder and grabs their left armpit. Drag them down. \
+Shrimp to the left and keep guard closed. \
+\
+Option 1 Cross choke) \
+Right hand grabs opponents cross collar palm up very deep. \
+Left hand grabs palm down behind opponents head. Try to keep wrists together. \
+Change angle by shrimping in other direction. \
+Right leg pushes in opponents armpit. Left hand switches around opponents head. \
+Bring your head to your wrists and gradually apply pressure to choke. \
+Opponent normally defends by trying to posture up and push on your hands. \
+Use your legs and arms to keep opponent tight to prevent this. \
+\
+Option 2 back take) \
+When opponents right hand is tucked inside. \
+Your right hand goes under opponents arm and grabs the back of their right elbow. \
+Pull it forward and shrimp to the left a bit to go on your right elbow and create some space. \
+Left hand grabs armpit throughout. \
+Right hand then switches around to push on the outside of opponents right elbow palm down. \
+Push elbow and pull on their armpit at the same time to twist opponent. \
+Your left foot can go on ground to help shrimp away as pull on armpit and push on elbow. \
+You want opponents back on your chest. Then get seatbelt grip, hooks in and complete the back take. \
+\
+Option 3 Omoplata \
+When opponent has their right arm on the outside to the left of your body. \
+Go for the choke with your right arm as in option 1) \
+Then push away to the right to create some space and being your left knee onto opponents shoulder. \
+Press down with your knee to stop opponent posturing up. \
+Without losing pressure with the knee, bring your foot to the ground infront of opponents head. \
+Sit up and slide the other leg out into omoplata position. \
+Hold onto opponents torso and push forward towards opponents left shoulder \
 
-Option 2 back take)
-When opponents right hand is tucked inside. 
-Your right hand goes under opponents arm and grabs the back of their right elbow. Pull it forward and shrimp to the left a bit to go on your right elbow and create some space. 
-Left hand grabs armpit throughout. 
-Right hand then switches around to push on the outside of opponents right elbow palm down. 
-Push elbow and pull on their armpit at the same time to twist opponent. 
-Your left foot can go on ground to help shrimp away as pull on armpit and push on elbow. You want opponents back on your chest. Then get seatbelt grip, hooks in and complete the back take. 
+</details>
 
 <details>
 <summary>Closed Guard clinch attacks (Arm bar and triangle)</summary>

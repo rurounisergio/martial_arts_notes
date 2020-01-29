@@ -83,3 +83,13 @@ Move your head to opponents right hip and left knee checking their head. \
 Keep low throughout \
 Extend your left arm to finish the choke \
 </details>
+
+
+<details>
+<summary>Submission when opponent turns away from side control towards turtle. </summary>
+
+You have left hand under opponents head. They turn away from you. \
+Left hand goes deep around opponents neck and grabs their right lapel. \ 
+Bring left knee to left of opponents head like a pillow. Right leg goes over opponents body and tight to their hip. \
+Lean back and pull with your left hand to complete the choke. \
+</details>

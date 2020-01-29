@@ -26,7 +26,6 @@ From spider guard: Use your right leg to cross hook behind opponents right knee.
 
 </details>
 
-
 ### Attacks
 
 <details>
