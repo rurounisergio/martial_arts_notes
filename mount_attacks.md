@@ -15,6 +15,11 @@ put them back into mount. \
 When opponent bridges, outstretch one arm to stop being turned over and other \
 arm around their head. Lifting opponents head off the ground means they cannot \
 bridge properly. \
+\
+When opponent is pushing on your shoulders, be in low mount. Lean on one arm as bring the other in, then bring the other. \
+\
+When opponent is pushing your hips, cup their elbow to lift their arm and then bring your knee in high under their armpit. \
+
 </details>
 
 <details>
@@ -26,6 +31,7 @@ Left hand then goes palm down on opponents gi as close to their neck as possible
 Then move head back to the middle and as high as you can. Use your belly pressing down to do the choke. No need to use your hands. 
 </details>
 <details>
+
 <summary>Kimura from High Mount</summary>
 Armbar from high mount. Move left knee forward as high as you can, higher than opponents head. \
  With your left hand grab opponents right shoulder. \
@@ -92,7 +98,31 @@ Important that left elbow should be close to opponents head. \
 Both elbows on the floor. Raise your right elbow. \
 </details>
 
-### Technical Mount
+### Combo
+
+<details>
+<summary>3 mount attack sequence</summary>
+\
+1) Choke from mount: \
+Lean to your right. Left hand palm up 4 fingers in goes deep across into opponents collar. \
+Right hand circle around to your left and move your head into the ground to your left. \
+Right hand palm down grab near opponents neck with bottom 3 fingers. Bring head to the middle next to opponent. \
+Use belly and hip thrust with hands to choke. \
+\
+2)Americana from mount: \
+Opponent blocks 1) as soon as put left hand in. Grab their hand with left hand. \
+posture up and also grab their elbow with your right hand. Use body to bring it to the ground. \
+Americana position. Lean back to bring their elbow under shoulder level. Lean to the left as lift. \
+\
+3)Armbar from mount: \
+Can defend Americana if they're attacking your left hand by grabbing your left hand \
+with your right hand and bringing it across your body to the right. \
+If opponent does this, keep Americana grip and put their hand on the ground on the other side to your left. \
+ Left leg up and against their hip. Right knee to opponents head. Lean left, leg across and Armbar. \
+
+</details>
+
+### Technical Mount Combo
 
 <details>
 <summary>Mount to technical mount</summary>

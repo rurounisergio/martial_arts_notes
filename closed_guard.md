@@ -167,6 +167,35 @@ Get arm over opponents shoulder first, then use both your hands and body to move
 </details>
 
 <details>
+<summary>Pendulum sweep/triangle/armbar combo</summary>
+
+Opponent has both their hands on your waist and is pushing down. \
+Use your hands to grab the back of opponents elbows and pull them forward with your arms and legs. \
+Control opponents left elbow With your right hand.  \
+Use your left hand to grab under their right knee. \
+Open your legs and swing to get an angle to your left. \ 
+Can pull opponents right leg onto your left shoulder for better leverage before sweeping. \
+Then push with your knee diagonally and over their left shoulder to sweep them. \
+Can also sit up onto your elbow to help the sweep. \
+\
+If opponent postures out with their left arm when you try to sweep, \
+use your right hand to push their arm away as you hip escape and bring your right leg over their shoulder. \
+Can then attack with triangle . \
+Grab opponents head with both your arms to keep them down. \
+Bridge to get your arms under their elbow and bring it across your body \
+Right hand grabs your right knee trapping opponents arm below. 
+Left hand grabs your shin. \
+Put left foot on opponents hip and move your head to the right. \
+Lock legs and finish the triangle. \
+\
+If opponent defends triangle by bringing their right arm under behind your butt and grab their left hand underneath you. \
+Bridge to create space and being your left hand under their grip. \
+Cup your right hand in Gable grip. Your bottom left hand should be facing opponent. \
+Break opponents grip and go into straight armbar keeping opponents arm tight with your ear and shoulder. \
+If opponent defends armbar by bending their arm, can then bring it across and into triangle. \
+</details>
+
+<details>
 <summary></summary>
 
 </details>

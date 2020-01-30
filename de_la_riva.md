@@ -22,6 +22,15 @@ Don't have both shoulders on the ground. Lean on your left shoulder and keep rig
 When you have opponent in closed guard and they stand up to open the guard. Grab their ankle, push them back with feet on their hips and 
 go into the position \
 From spider guard: Use your right leg to cross hook behind opponents right knee. Then get ankle with your left hand. Then go into de la riva
+\
+When opponent standing and trying to pass guard \
+When have the chance, use left foot to hook inside opponents right knee and bring it forward. \
+This enables you to catch opponents right ankle with your left hand. \
+Do this when opponent is close, not far so don't have to open up your frame.  \
+Then use right foot on opponents left hip to push them back and stop them coming forward. \ 
+Then take left foot from inside and wrap it around into de la hiva and turn to the side. \
+If possible use your right hand to grab opponents right collar and keep them down. \
+
 </summary>
 
 </details>
@@ -52,6 +61,24 @@ If opponent stands up With their back straight and has good posture, it can be h
 So instead, keep left hand on opponents ankle. Switch right hand from opponents belt to their ankle. \
 Both hands are now on opponents ankles. Raise your hips and push forward to make your opponent fall forward into turtle. \
 Go into combat base and then go to their side. \
+</details>
+
+<details>
+<summary>Sweep when opponent postures up</summary>
+
+If opponent postures up and can't grab their collar with your right hand \
+bring left foot out of de la Riva and push it against opponents right hip. \
+Right foot then moves inside behind opponents left knee.  \
+Important to do one leg at a time as should always have one foot on opponents hip to stop them moving forward. \
+Use feet to push opponents weight to your right, then use ankle grip to take them down. \
+When they fall, keep to your left side, hide your left leg by bringing it back and go up into combat position with right knee up. \
+\
+Sweep if opponent defends above sweep)
+If opponent resists the above sweep), pull them forward with your right foot hooking their left knee. \ 
+Grab their right ankle with your right hand. \
+Push forward with left foot on their hip and right foot hooking behind their knee and grips on their ankles. \
+Be on your left side and again hide left foot by bringing it back and go into combat position.  \
+
 </details>
 
 ### Non stop de la riva

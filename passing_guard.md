@@ -115,3 +115,9 @@ Left hand goes on opponents belt on their right hip. \
 Then switch your base by bringing your head to opponents left hip and switch into side control. \
 </details>
 
+<details>
+<summary>Passing closed guard basic drill</summary>
+
+Bring your right knee to middle of opponents butt. Left knee out at ninety degrees. Use lower back to break opponents leg grip. \ 
+Then bring right knee up into combat base. \
+</details>
