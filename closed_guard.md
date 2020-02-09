@@ -61,6 +61,14 @@ and is diagonal and forward \
 This makes it easy to pass left leg over opponents head. \
 Squeeze knees together. Raise hips. Opponents thumb pointing at the ceiling. Finish armbar. \
 Your left foot is heel up with pressure down. Right foot on left knee with no space -> squeezing tight \
+
+\
+Tip: Pulling arm across alternative: \
+When you have opponent in guard, use left hand to grab opponents right wrist. \
+Use right hand to grip on outside of their right elbow. \
+Drag their arm across your centreline to the right. \
+Use left hand to keep back of opponents head down. \
+Use left foot on their hip to spin to the side. \
 </details>
 
 <details>
@@ -193,6 +201,23 @@ Bridge to create space and being your left hand under their grip. \
 Cup your right hand in Gable grip. Your bottom left hand should be facing opponent. \
 Break opponents grip and go into straight armbar keeping opponents arm tight with your ear and shoulder. \
 If opponent defends armbar by bending their arm, can then bring it across and into triangle. \
+</details>
+
+<details>
+<summary>Triangle from guard</summary>
+
+Opponent is grabbing both your lapels. Bring your left hand in between the opponents arms. \
+Put weight on your right elbow and lift yourself up, \
+bringing your left arm deep around your opponents head to bring them down. \
+Shrimp to the left and bring your right hand in and onto your opponents bicep. \
+Shrimp more and bring left leg high on opponents back. \
+Bring right knee in and push against opponents bicep. Grab opponents hand with your right hand and create \
+space to throw your right leg over. \
+Control opponents head with both your hands. If opponent postures up, move is lost. \
+Bridge and use both hands under opponents hand to bring it across. \
+Then immeditaely control opponents head again. \
+Shrimp back to move up their body. Can adjust legs several times going side to side. Squeeze knees together to finish the move \
+
 </details>
 
 <details>

@@ -23,12 +23,37 @@ full guard or knee shield.
 Go on your right shoulder. Keep on your side. Right hand cups on back of opponents bicep. Left hand pushes against opponents far shoulder. Left forearm can press against opponents neck if they put weight forward. 
 Don't let opponent get the cross face or underarm. Don't rely on grips, use cupping. 
 </details>
-<details>
-<summary>Half guard into closed guard</summary>
 
-You start off with a locked half guard. Then step your left foot on your right ankle. Then switch your legs so left foot is between opponents legs. Right foot applies pressure on back of opponents knee. Keep frame With your hands and shrimp so can bring right knee out. Reverse Shrimp again so can bring left knee out and close the closed guard. Pull opponents arm towards you throughout. 
+<details>
+<summary>Half guard into closed guard/Knee Shield into back take</summary>
+
+You have opponents right leg in half guard. \
+Keep frame with your arms (right hand cupping opponents elbow, \
+left hand on opponents shoulder with your forearm against their neck. \
+Option A into closed guard) shrimp to your left. Bring right knee in. \
+Then reverse shrimp in the other direction to create space so can bring your leg around into closed guard. \
+At the same time, use right hand to stretch out opponents arm. \
+Option B into knee shield) keep right leg hooking opponents leg. \
+Bring left knee low across opponents body, then open it up so it is diagonally across their body and keeping them away. 
+\
+Tip: whenever open half guard, put one foot ontop of the other first before fully opening the half guard. \
+\
+Back take from Option B Knee shield) \
+Opponent tries to push your left knee down with their right hand. \
+Stop your frame and put your right hand on their wrist and left hand behind opponents elbow. \
+Drag them forward and turn to the side. Left hand on their waist. \
+Sit up and put pressure on their right shoulder. Keep close so they can't put their right arm around you. \
+Right hand on opponents collar. Fall to the side keeping on one shoulder. \
+Right hand around opponents head. Left arm under their arm and get seatbelt. \
+Hook opponents legs but never cross your legs. \
+Rear naked Choke) \
+Left hand trap opponents lower arm and put it on their belly. \
+Keep your head next to opponents and turn to the right to open up their neck. \
+Move right hand under their neck up to their shoulder. \
+Let go of opponents arm with your other arm and grab your hands together. Look to the left and squeeze elbows. \
 
 </details>
+
 <details>
 <summary>Half guard into back take or sweep</summary>
 
@@ -42,7 +67,13 @@ If opponent postures up. Use your right hand to cup the outside of opponents kne
 <details>
 <summary>Half guard into arm bar </summary>
 
-You have opponent in half guard with your right shoulder on the floor. Left knee is in knee shield. You have a frame. Left hand on opponents shoulder. Right hand cupping the back of their tricep. Opponent wants to get their arm around your head. You keep defending with your right hand, either by keeping your elbow in to stop opponent going through the inside or by circling around when opponent goes on the outside. If opponent continues, take them by surprise when they try to go on the outside one time. Trap their arm against your shoulder using your head and pressing it tight with your ear. At the same time use your right arm to circle inwards using on their elbow to stretch out their arm. Grab your right elbow with your left hand and continue to turn to the left for the armbar. 
+You have opponent in half guard with your right shoulder on the floor. 
+Left knee is in knee shield. You have a frame. Left hand on opponents shoulder. 
+Right hand cupping the back of their tricep. Opponent wants to get their arm around your head. 
+You keep defending with your right hand, either by keeping your elbow in to stop opponent going through 
+the inside or by circling around when opponent goes on the outside. 
+If opponent continues, take them by surprise when they try to go on the outside one time. 
+Trap their arm against your shoulder using your head and pressing it tight with your ear. At the same time use your right arm to circle inwards using on their elbow to stretch out their arm. Grab your right elbow with your left hand and continue to turn to the left for the armbar. 
 </details>
 
 <details>
@@ -75,6 +106,32 @@ Otherwise can sit up and bring switch right hook so have butterfly guard. \
 Right arm around opponents body, left arm around opponents arm. \
 Use your left hook to stretch out opponent and right hook to uchi Mata as fall to your left. \
 </details>
+
+<details>
+<summary>Escaping from half mount into closed guard or back take</summary>
+
+You have opponents right leg in half guard and they have left knee on the floor to your left. This is half mount. \
+\
+1) \
+If opponents right knee is not too strong on the floor. \
+First use your two arms to make a frame against their hip to stop them coming forward. \
+Turn to your left shoulder and keep knees squeezed around opponents leg. \
+Use left elbow on opponents inside thigh and legs to lift up opponents leg and then bring your left leg infront of opponents thigh. \
+Bicycle kick and then switch to your right shoulder. \
+\
+2) \
+If opponent has left leg raised or opponents knee is too strong to lift or opponent is holding around your head tight. \
+Release opponents right lapel from their belt using your left hand. \
+Right hand grabs under their right leg. \
+Use your legs to bring opponent forward. \
+Use your right hand to grab opponents right lapel under their legs. \
+Grab very deep so your right elbow should be behind opponents right hamstring. \
+Opponent should find it hard to sit back down. \
+Use your right arm, left elbow on the floor and legs to bring opponent forward again and then take their back. \
+
+</details>
+
+What to do if opponent switches hips to escape your half guard? reverse kesa gatame
 
 <details>
 <summary></summary>

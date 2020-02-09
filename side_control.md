@@ -31,6 +31,27 @@ opponent into mount. \
 </details>
 
 <details>
+<summary>Submission when opponent turns away from side control towards turtle. </summary>
+
+You have left hand under opponents head. They turn away from you. \
+Left hand goes deep around opponents neck and grabs their right lapel. \ 
+Bring left knee to left of opponents head like a pillow. Right leg goes over opponents body and tight to their hip. \
+Lean back and pull with your left hand to complete the choke. \
+</details>
+
+<details>
+<summary>Armbar when opponent turns inwards towards you to escape side control</summary>
+
+You have opponent in mune gatame with left arm around their head. \
+They turn inwards to try and escape. Right hand fuuk Sao their left arm keeping elbow in. \
+Left hand on their neck keeping pressure down and stopping them from moving. \
+Left foot goes over their head. Sit down on the other side, keeping close to opponent and knees tight. \
+Finish armbar. \
+</details>
+
+### MMA Leech side control attacks
+
+<details>
 <summary>The Garrote (Gi Choke)</summary>
 https://mmaleech.org/side-control-artillery/9-the-garrote/
 
@@ -85,11 +106,4 @@ Extend your left arm to finish the choke \
 </details>
 
 
-<details>
-<summary>Submission when opponent turns away from side control towards turtle. </summary>
 
-You have left hand under opponents head. They turn away from you. \
-Left hand goes deep around opponents neck and grabs their right lapel. \ 
-Bring left knee to left of opponents head like a pillow. Right leg goes over opponents body and tight to their hip. \
-Lean back and pull with your left hand to complete the choke. \
-</details>

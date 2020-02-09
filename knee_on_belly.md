@@ -47,3 +47,17 @@ Left knee pushes up their right arm. \
 Then go into high mount. \
 
 </details>
+
+
+### Escapes from knee on belly
+
+<details>
+<summary>Escaping knee on the belly</summary>
+
+Opponent has right knee on your belly. Left hand cup outside of knee. \
+Right hand use thumb to push away on opponents foot. \
+Then shrimp to the left. Hands keep their knee from going forward as you shrimp away. \
+</details>
+
+
+

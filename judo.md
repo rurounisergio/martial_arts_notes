@@ -1,18 +1,31 @@
-<html>
-	<h2>Tachi Waza</h2>
+### Judo
 
-	<h4>Uchi Mata</h4>
+<details>
+<summary>Tomoe Nage </summary>
+
+Classical Kashiwazaki straight entry. 
+Also with stepping back and forth. 
+Double leg 
+When attack fails. Right foot behind opponents knee. Use arms 
+and leg kicking up to bring opponent to your left.
+</details>
+
+<details>
+<summary></summary>
+
+</details>
+
+<details>
+<summary></summary>
+
+</details>
+
+<details>
+<summary></summary>
+
+</details>
 
 
-	<h4>Tomoe Nage </h4>
-		<p>
-			Classical Kashiwazaki straight entry. <br/>
-			Also with stepping back and forth. <br/>
-			Double leg <br/>
-			When attack fails. Right foot behind opponents knee. Use arms
-			and leg kicking up to bring opponent to your left.
-		</p>
-	</ul>
 	<h4>Yoko Tomoe Nage </h4>
 	<p>
 		Key point: pull in with sleeve hand at the end <br/>
